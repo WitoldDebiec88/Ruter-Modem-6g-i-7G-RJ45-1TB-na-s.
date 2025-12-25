@@ -1,0 +1,1 @@
+# Ruter-Modem-6g-i-7G-RJ45-1TB-na-s.
